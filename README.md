@@ -26,9 +26,9 @@ Harassment includes: offensive verbal comments related to gender, sexual orienta
 As we are evolving on the web, the previous rules are also applied for unacceptable behvior publicly online, on social media.
 
 
-###Consequences of unacceptable Behavior
+###Consequences of unacceptable Behaviour
 If a gitch do not respect nor agree with the terms defined in the document, or break our trust by behaving in a total disrespect of our terms, we as bullgit, will ask the person to leave the group definitely. 
 
-We cannot accept such behavior, we don’t want to deal with small minded people, we don’t want to be a source of hate nor inflating the hate of each other. 
+We cannot accept such behaviour, we don’t want to deal with small minded people, we don’t want to be a source of hate nor inflating the hate of each other. 
 
 @bullgit
