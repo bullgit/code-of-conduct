@@ -13,7 +13,7 @@ This document defines our behavior expectations from any gitch participation in 
 We are an open community, we love all of our gitches and we prone respect and love.
 As bullgit, we respect every person, no matter their religion, gender, sex or where they live.
 
-As an open Community we do not tolerate harassment and/or *phobic behaviour against people based in their nationality, sexuality, religion, gender, or other defining attributes.
+As an open Community we do not tolerate harassment and/or *phobic behavior against people based in their nationality, sexuality, religion, gender, or other defining attributes.
 
 Our group is based on love and with peace on our mind. We are a friendly group and we want to stay friendly, this is our vision of bullgit.
 
